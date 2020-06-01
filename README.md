@@ -1,1 +1,2 @@
-# Hapus-Postingan-Fb
+# Cara penggunaan
+https://pandasid.blogspot.con
